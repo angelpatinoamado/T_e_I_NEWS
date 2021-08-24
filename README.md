@@ -31,6 +31,7 @@ En 2009 y 2010 cofundó las ONG “Enseña por Colombia” y “Volunteers Colom
 
 Desde hace tres años y medio, es el director de Alianza Educativa, una organización conformada por la Universidad de Los Andes, el Colegio Los Nogales, el San Carlos y la Montaña que administra once colegios en Bogotá (antes llamados “colegios en concesión”).
 
+
 Ahora que comienza la reactivación de los colegios (o no) lo invitamos para hablar de la educación en el contexto de la pandemia: “Realmente lo que ha pasado es una tragedia educativa”, dice. Pero también cree que hay razones para ser optimistas frente a lo que viene.
 
 
@@ -68,3 +69,4 @@ El grupo también indicó que informaba sistemáticamente a sus clientes cuando 
 Vale decir que según **‘UpGuard’**, es mejor cambiar el software en función de cómo lo utilicen los clientes en lugar de "ver la falta generalizada de privacidad de los datos como una mala configuración por parte del usuario, que perpetúa el problema y pone al público en riesgo".
 
 **"El número de cuentas en las que información sensible estuvo vulnerable muestra que el riesgo asociado con esta función -la probabilidad y el impacto de una mala configuración- no había sido tomada en cuenta adecuadamente"**, añadió la firma.
+
