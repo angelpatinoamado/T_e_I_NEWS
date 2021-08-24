@@ -35,7 +35,6 @@ Ahora que comienza la reactivación de los colegios (o no) lo invitamos para hab
 
 
 
-
 ##  **“ Por error, quedan expuestos los datos de millones de usuarios de Microsoft”**
 ###### _‘UpGuard’ publicó una investigación que asegura se expusieron nombres y otra información personal_ 
 
