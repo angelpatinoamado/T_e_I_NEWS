@@ -70,3 +70,20 @@ Vale decir que según **‘UpGuard’**, es mejor cambiar el software en funció
 
 **"El número de cuentas en las que información sensible estuvo vulnerable muestra que el riesgo asociado con esta función -la probabilidad y el impacto de una mala configuración- no había sido tomada en cuenta adecuadamente"**, añadió la firma.
 
+
+## **“¿Qué sigue para la tributaria tras su aprobación en el Congreso?”**
+###### _Se espera que en los próximos días se concilien los textos aprobados en Senado y Cámara._
+
+_8/09/2021_
+
+El martes 7 de septiembre fue aprobado en las plenarias de Senado y Cámara el texto de la reforma tributaria 2.0 o ley de 'inversión social', la tercera que logra tramitar este Gobierno Ahora, los artículos deberán ser conciliados entre la Cámara y el Senado, labor que, de acuerdo con el Ministerio de Hacienda, se espera se concrete en los próximos días, de modo que pueda pasar a sanción presidencial.
+
+Ahora, los artículos deberán ser conciliados entre la Cámara y el Senado, labor que, de acuerdo con el Ministerio de Hacienda, se espera se concrete en los próximos días, de modo que pueda pasar a sanción presidencial.
+
+De manera extraoficial, se ha comentado que la conciliación sería este jueves 9 de septiembre.
+
+Por el lado del Senado, los conciliadores de la ley de 'inversión social' son los senadores Juan Diego Gómez (Partido Conservador), David Barguil (Partido Conservador) y Fernando Nicolás Araujo (Centro Democrático).
+
+En la Cámara, los conciliadores designados son Wilmer Carrillo (Partido de la U), John Jairo Roldán (Partido Liberal) y Óscar Darío Pérez (Centro Democrático). 
+
+ La conciliación se hace necesaria pues, con la aprobación del texto en Senado, se votaron y aceptaron tres artículos adiconales a los 61 que componen el articulado. El primero fue presentado por la senadora Maria del Rosario Guerra, y buscaba reorganizar y renumerar el documento. Asimismo, en Cámara se aprobaron dos artículos adicionales, uno referente a facilidades de pago para las multas en motos y otro sobre la extensión de los tiempos de financiación en las Alianzas Público Privadas o (APP).
