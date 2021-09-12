@@ -90,9 +90,11 @@ En la Cámara, los conciliadores designados son Wilmer Carrillo (Partido de la U
 
 
 
-## **“MENDY SEGUIRA ENCARCELADO HASTA EL 2022?”**
+## **“MENDY SEGUIRA ENCARCELADO HASTA EL 2022”**
 
- El futbolista francés del Manchester City Benjamin Mendy, de 27 años, será juzgado en el Reino Unido a partir del 24 de enero de 2022 por las varias violaciones de las que se le acusa, anunció este viernes un juez británico.
+######_El futbolista francés del Manchester City Benjamin Mendy, de 27 años, será juzgado en el Reino Unido a partir del 24 de enero de 2022 por las varias violaciones de las que se le acusa, anunció este viernes un juez británico_######
+
+_10/09/2021_
 
 La fecha, que aún está sujeta a cambios, se fijó tras una vista en el juzgado de Chester, en el norte de Inglaterra, en que el internacional francés, campeón del mundo con Francia en 2018, sólo habló para identificarse.
 
@@ -106,5 +108,5 @@ También se le acusa de agredir sexualmente a una mujer, siempre en su casa, a p
 
 El Manchester City, donde juega desde 2017, le había suspendido en agosto, minutos antes de que la policía anunciara que iba a comparecer ante un juez.
 
-El club pagó 52 millones de libras (70 millones de dólares, 60 millones de euros) por Mendy, que fue descubierto en el Marsella y pasó una temporada en el Mónaco, convirtiéndolo en el defensa más caro de la historia en ese momento.
+El club pagó 52 millones de libras ##(70 millones de dólares, 60 millones de euros)## por Mendy, que fue descubierto en el Marsella y pasó una temporada en el Mónaco, convirtiéndolo en el defensa más caro de la historia en ese momento.
 
