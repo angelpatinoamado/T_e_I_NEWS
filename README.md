@@ -107,5 +107,5 @@ También se le acusa de agredir sexualmente a una mujer, siempre en su casa, a p
 
 El Manchester City, donde juega desde 2017, le había suspendido en agosto, minutos antes de que la policía anunciara que iba a comparecer ante un juez.
 
-El club pagó 52 millones de libras ##(70 millones de dólares, 60 millones de euros)## por Mendy, que fue descubierto en el Marsella y pasó una temporada en el Mónaco, convirtiéndolo en el defensa más caro de la historia en ese momento.
+El club pagó 52 millones de libras **(70 millones de dólares, 60 millones de euros)** por Mendy, que fue descubierto en el Marsella y pasó una temporada en el Mónaco, convirtiéndolo en el defensa más caro de la historia en ese momento.
 
