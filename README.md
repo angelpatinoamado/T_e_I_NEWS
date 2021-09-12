@@ -89,9 +89,10 @@ En la Cámara, los conciliadores designados son Wilmer Carrillo (Partido de la U
  La conciliación se hace necesaria pues, con la aprobación del texto en Senado, se votaron y aceptaron tres artículos adiconales a los 61 que componen el articulado. El primero fue presentado por la senadora Maria del Rosario Guerra, y buscaba reorganizar y renumerar el documento. Asimismo, en Cámara se aprobaron dos artículos adicionales, uno referente a facilidades de pago para las multas en motos y otro sobre la extensión de los tiempos de financiación en las Alianzas Público Privadas o **(APP)**.
 
 
-Mendy seguirá encarcelado hasta enero de 2022
 
-El futbolista francés del Manchester City Benjamin Mendy, de 27 años, será juzgado en el Reino Unido a partir del 24 de enero de 2022 por las varias violaciones de las que se le acusa, anunció este viernes un juez británico.
+## **“MENDY SEGUIRA ENCARCELADO HASTA EL 2022?”**
+
+ El futbolista francés del Manchester City Benjamin Mendy, de 27 años, será juzgado en el Reino Unido a partir del 24 de enero de 2022 por las varias violaciones de las que se le acusa, anunció este viernes un juez británico.
 
 La fecha, que aún está sujeta a cambios, se fijó tras una vista en el juzgado de Chester, en el norte de Inglaterra, en que el internacional francés, campeón del mundo con Francia en 2018, sólo habló para identificarse.
 
@@ -106,3 +107,4 @@ También se le acusa de agredir sexualmente a una mujer, siempre en su casa, a p
 El Manchester City, donde juega desde 2017, le había suspendido en agosto, minutos antes de que la policía anunciara que iba a comparecer ante un juez.
 
 El club pagó 52 millones de libras (70 millones de dólares, 60 millones de euros) por Mendy, que fue descubierto en el Marsella y pasó una temporada en el Mónaco, convirtiéndolo en el defensa más caro de la historia en ese momento.
+
